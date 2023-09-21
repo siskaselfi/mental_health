@@ -1,2 +1,2 @@
 # mental_health
-123456
+kamu tidak harus mengendalikan pikiranmu
